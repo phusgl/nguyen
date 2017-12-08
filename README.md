@@ -1,0 +1,2 @@
+# nguyen
+Mỏ khai thác
